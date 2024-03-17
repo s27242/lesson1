@@ -1,1 +1,3 @@
-# lesson1
+Aliaksei Protchanka
+13
+s27242
